@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Okulatra
+- 👀 I’m interested in games
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on my own
+- 📫 How to reach me okulatra@gmail.com
+- ⚡ Fun fact: I like yerba mate
